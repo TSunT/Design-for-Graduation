@@ -1,1 +1,1 @@
-# GraduteDesign
+# GraduateDesign
